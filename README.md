@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @imlijie36. I’m interested in Undergrad specializing in Java. 
+- 🌱 I’m currently learning Passionate about improving user experiences through thoughtful design.
